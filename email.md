@@ -1,1 +1,2 @@
-My preferred email address is: 
+My preferred email address is: k.stone@sk.com
+Done.
