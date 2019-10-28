@@ -1,1 +1,1 @@
-My preferred email address is: michael_harty@oxy.com
+My preferred email address is: mlawrence@oasispetroleum.com
