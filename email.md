@@ -1,2 +1,1 @@
-My preferred email address is: john@fake.com
-my personal email adddress is andy@fake.com
+My preferred email address is: johntfosterjr@gmail.com
