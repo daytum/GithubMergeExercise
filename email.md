@@ -1,1 +1,1 @@
-My preferred email address is: aotterson@contractor.usgs.gov
+My preferred email address is: aotterson@contractor.usgs.gov.
